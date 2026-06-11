@@ -1,0 +1,2 @@
+# ajeng.github
+lagi mencoba
